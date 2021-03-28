@@ -74,8 +74,8 @@ If you’d like to schedule a consultation with me, please send an appointment r
 
 # Contact
 
-Phone (203) 555-0021
-Email familiesworkingtogether@gmail.com
+Phone: (203) 555-0021 - 
+Email: familiesworkingtogether@gmail.com
 
 500 Summer Street
 Stamford, CT 06901
