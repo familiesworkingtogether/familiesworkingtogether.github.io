@@ -1,5 +1,5 @@
 [Families Working Together](https://familiesworkingtogether.github.io) | [About](#about) | [Services](#services) | [Bio](#bio) | [Contact](#contact)
----------------------------------------------------------------------- | --------------- | --------------------- | ----------- | -------------------
+
 
 # About
 
