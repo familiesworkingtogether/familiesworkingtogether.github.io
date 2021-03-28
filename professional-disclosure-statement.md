@@ -1,5 +1,3 @@
-[Families Working Together](https://familiesworkingtogether.github.io) | [About](index.md#about) | [Services](index.md#services) | [Bio](index.md#bio) | [Contact](index.md#contact)
-
 # LCMHC Professional Disclosure Statement
 Thelma M. Orrego, MA, LPC  
 Office: (203) 555-0021  
