@@ -1,4 +1,4 @@
-> [Home](/)
+/ [Home](/)
 
 # LCMHC Professional Disclosure Statement
 Thelma M. Orrego, MA, LPC  
