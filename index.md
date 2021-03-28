@@ -67,7 +67,7 @@ I believe that a strong therapeutic relationship is key in order for me to help 
 
 # Bio
 
-I’m a food relationship expert committed to helping women learn how to build healthier relationships with food and their bodies. My work focuses on targeting ineffective behaviors, habits, and beliefs around food. I believe in taking a collaborative approach to helping clients reach their goals. 
+![Headshot](/assets/images/IMG_2984.jpg) I’m a food relationship expert committed to helping women learn how to build healthier relationships with food and their bodies. My work focuses on targeting ineffective behaviors, habits, and beliefs around food. I believe in taking a collaborative approach to helping clients reach their goals. 
 
 I’m passionate about creating resources for individuals struggling with eating disorders, and am interested in participating in workshops, speaking engagements, webinars, and podcasts.  
 If you’d like to schedule a consultation with me, please send an appointment request . I look forward to hearing from you.
