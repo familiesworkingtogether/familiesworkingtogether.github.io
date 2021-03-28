@@ -12,7 +12,7 @@ I have a Master of Arts in Clinical Mental Health Counseling from Fairfield Univ
 
 ## Counseling Background
 
-I work with adults and children from ages six to ten. I follow a person-center style as well as focus on family systems to approach individual and family issues respectively. I mainly focus on a combined approach among Cognitive Behavioral Therapy, Reality Therapy and Strength based therapy while maintaining cultural awareness with families and individuals. With children I find it very effective to use Play and Art Therapy in combination with these theoretical approaches.
+I work with adults and children from ages six to ten. I follow a person-center style as well as focus on family systems to approach individual and family issues respectively. I mainly focus on a combined approach among Cognitive Behavioral Therapy, Reality Therapy and Strength based therapy while maintaining cultural awareness with families and individuals. With children, I find it very effective to use Play and Art Therapy in combination with these theoretical approaches.
 
 ## Session Fees and Length of Service 
 
