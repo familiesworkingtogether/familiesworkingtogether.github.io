@@ -69,12 +69,12 @@ At **Families Working Together**, we strongly belive that success lies in both t
 
 I currently reside in Fairfield, CT with my husband with whom I enjoy hiking and traveling with. I am fluent in English and Spanish and enjoy visiting my native country of Guatemala as often as possible.
 
-I have an undergraduate degree with a major in Finance and minor in Psychology from the University of Connecticut and a Master of Arts in Clinical Mental Health Counseling from Fairfield University. I worked in the Finance industry for over 17 years and decided to change careers in order to pursue my passion of working with children in the counseling field. See my [Professional Disclosure Statement](professional-disclosure-statement.md)
+I have an undergraduate degree with a major in Finance and minor in Psychology from the University of Connecticut and a Master of Arts in Clinical Mental Health Counseling from Fairfield University. I worked in the Finance industry for over 17 years and decided to change careers in order to pursue my passion of working with children in the counseling field. See my [Professional Disclosure Statement](professional-disclosure-statement.md).
 
 
 # Contact
-Phone: (203) 555-0021 - 
-Email: familiesworkingtogether@gmail.com
+Phone: (203) 555-0021  
+Email: familiesworkingtogether@gmail.com  
 
-500 Summer Street
-Stamford, CT 06901
+500 Summer Street  
+Stamford, CT 06901  
