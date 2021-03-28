@@ -47,14 +47,14 @@ At **Families Working Together**, we strongly belive that success lies in both t
 ## Treatment Approach
 * Art Therapy
 * Cognitive Behavioral Therapy (CBT)
-* Person-Centered Therapy
-* Reality Therapy
-* Strength Based Therapy
-* Erikson’s Stages of Development
-* Play Therapy
 * Culturally Sensitive
+* Erikson’s Stages of Development
 * Family Systems
 * Narrative Therapy
+* Person-Centered Therapy
+* Play Therapy
+* Reality Therapy
+* Strength Based Therapy
 
 ## Modality
 * Individuals
