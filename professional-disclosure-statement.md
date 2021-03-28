@@ -1,10 +1,10 @@
 [Families Working Together](https://familiesworkingtogether.github.io) | [About](index.md#about) | [Services](index.md#services) | [Bio](index.md#bio) | [Contact](index.md#contact)
 
 # LCMHC Professional Disclosure Statement
-* Thelma M. Orrego, MA, LPC
-* Office: (203) 555-0021
-* Fax: (203) 555-9898
-* E-mail: familiesworkingtogether.com
+Thelma M. Orrego, MA, LPC  
+Office: (203) 555-0021  
+Fax: (203) 555-9898  
+E-mail: familiesworkingtogether.com  
 
 ## Qualifications 
 
@@ -31,12 +31,12 @@ All of our communication becomes part of the clinical record, which is accessibl
 Although clients are encouraged to discuss any concerns with me, you may file a complaint against me with the organization below should you feel I am in violation of any of these codes of ethics. I abide by the ACA Code of Ethics (http://www.counseling.org/Resources/aca-code-of-ethics.pdf).
  
 
-* North Carolina Board of Licensed Clinical Mental Health Counselors 
-* P.O. Box 77819
-* Greensboro, NC 27417
-* Phone: 844-622-3572 or 336-217-6007
-* Fax: 336-217-9450
-* E-mail: Complaints@ncblcmhc.org	
+North Carolina Board of Licensed Clinical Mental Health Counselors  
+P.O. Box 77819  
+Greensboro, NC 27417  
+Phone: 844-622-3572 or 336-217-6007  
+Fax: 336-217-9450  
+E-mail: Complaints@ncblcmhc.org  
 
 
 ## Acceptance of Terms
