@@ -65,7 +65,7 @@ At **Families Working Together**, we strongly belive that success lies in both t
 * Children (6 to 10)
 
 # Bio
-<img src="/assets/images/IMG_2984.jpg" width=250 height=400 style="float:left;"/> I’m a licensed professional counselor passionate about working with children and families. My work focuses on targeting ineffective behaviors and beliefs that are preventing individuals and families from living a happy and functional life. When working with children I strongly believe in taking a collaborative approach along with their families in order to meet their goals.
+<img src="/assets/images/IMG_2984.jpg" width=180 height=250 style="float:left;"/> I’m a licensed professional counselor passionate about working with children and families. My work focuses on targeting ineffective behaviors and beliefs that are preventing individuals and families from living a happy and functional life. When working with children I strongly believe in taking a collaborative approach along with their families in order to meet their goals.
 
 I currently reside in Fairfield, CT with my husband with whom I enjoy hiking and traveling with. I am fluent in English and Spanish and enjoy visiting my native country of Guatemala as often as possible.
 
