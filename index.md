@@ -16,7 +16,8 @@ At **Families Working Together**, we strongly belive that success lies in both t
 * Trauma
 * Parenting
 * Behavioral Issues
-* Issues
+
+## Issues
 * ADHD
 * Anger Management
 * Behavioral Issues
@@ -68,7 +69,7 @@ At **Families Working Together**, we strongly belive that success lies in both t
 
 I currently reside in Fairfield, CT with my husband with whom I enjoy hiking and traveling with. I am fluent in English and Spanish and enjoy visiting my native country of Guatemala as often as possible.
 
-I have an undergraduate degree with a major in Finance and minor in Psychology from the University of Connecticut and a Master of Arts in Clinical Mental Health Counseling from Fairfield University. I worked in the Finance industry for over 17 years and decided to change careers in order to pursue my passion of working with children in the counseling field.
+I have an undergraduate degree with a major in Finance and minor in Psychology from the University of Connecticut and a Master of Arts in Clinical Mental Health Counseling from Fairfield University. I worked in the Finance industry for over 17 years and decided to change careers in order to pursue my passion of working with children in the counseling field. See my [Professional Disclosure Statement](professional-disclosure-statement.md)
 
 
 # Contact
