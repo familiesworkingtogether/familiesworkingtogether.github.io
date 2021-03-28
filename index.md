@@ -6,7 +6,7 @@ Thank you for considering us to assist your child or family in better understand
 
 At times the counseling journey might have to be taken by the entire family. Our job is also to ensure that parents are comfortable in helping their children or family along this journey. We help adults with parenting skills, managing behavior issues and understanding how to be part of their child’s path through counseling. Our goal is also to assist adults in processing their own thoughts and feelings inside and outside of the home. We believe that a parent must not forget themselves and the importance of their mental health which will also allow them to provide the appropriate support to their family.
 
-At **Families Working Together**, we strongly belive that success lies in both the effort made in our center as well as at home but for true success we need to begin with a great relationship. To gain comfortability that we are a good fit for you or to address any initial concerns, we offer free phone consultations. Please note that we offer counseling sessions in both Enlgish and Spanish.
+At **Families Working Together**, we strongly belive that success lies in both the effort made in our center as well as at home but for true success we need to begin with a great relationship. To gain comfortability that we are a good fit for you or to address any initial concerns, we offer free phone consultations. Please note that we offer counseling sessions in both English and Spanish.
 
 # Services
 ## Specialties
