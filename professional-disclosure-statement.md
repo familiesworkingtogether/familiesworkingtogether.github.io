@@ -1,3 +1,5 @@
+> [Home](/)
+
 # LCMHC Professional Disclosure Statement
 Thelma M. Orrego, MA, LPC  
 Office: (203) 555-0021  
