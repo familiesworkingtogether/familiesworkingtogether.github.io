@@ -3,11 +3,11 @@
 
 # About
 
-Thank you for considering me as someone that can assist your child or family in better understanding and managing life’s challenges. It may be difficult for a child to cope with changes early in life such as divorce, location changes, beginning enrollment in a school or trauma in their early developmental stages. My goal is to help your child understand their feelings and thoughts and to learn how to communicate and manage them.
+Thank you for considering us to assist your child or family in better understanding and managing life’s challenges. It may be difficult for a child to cope with changes early in life such as divorce, location changes, beginning enrollment in a school or trauma in their early developmental stages. Our goal is to help your child understand their feelings and thoughts and to learn how to communicate and manage them.
 
-At times this counseling journey might have to be taken by the entire family. My job is also to ensure that parents are comfortable in helping their children or family along this journey. I help adults with parenting skills, managing behavior issues and understanding how to be part of their child’s path through counseling. My goal is also to assist adults in processing their own thoughts and feelings through life’s challenges, inside and outside of their home life. I believe that a parent must not forget themselves and the importance of their mental health which will also allow them to provide the appropriate support to their children.
+At times the counseling journey might have to be taken by the entire family. Our job is also to ensure that parents are comfortable in helping their children or family along this journey. We help adults with parenting skills, managing behavior issues and understanding how to be part of their child’s path through counseling. Our goal is also to assist adults in processing their own thoughts and feelings inside and outside of the home. We believe that a parent must not forget themselves and the importance of their mental health which will also allow them to provide the appropriate support to their family.
 
-I believe that a strong therapeutic relationship is key in order for me to help you, your child or family through the counseling process. To gain comfortability that you and I are a good fit or to address any initial concerns, I offer free phone consultations. At **Families Working Together** we are passionate about providing the utmost comfort and support to our clients while helping them navigate the obstacles life presents them with.
+At **Families Working Together**, we strongly belive that success lies in both the effort made in our center as well as at home but for true success we need to begin with a great relationship. To gain comfortability that we are a good fit for you or to address any initial concerns, we offer free phone consultations. Please note that we offer counseling sessions in both Enlgish and Spanish.
 
 # Services
 
@@ -67,10 +67,12 @@ I believe that a strong therapeutic relationship is key in order for me to help 
 
 # Bio
 
-![Headshot](/assets/images/IMG_2984.jpg) I’m a food relationship expert committed to helping women learn how to build healthier relationships with food and their bodies. My work focuses on targeting ineffective behaviors, habits, and beliefs around food. I believe in taking a collaborative approach to helping clients reach their goals. 
+![Headshot](/assets/images/IMG_2984.jpg) I’m a licensed professional counselor passionate about working with children and families. My work focuses on targeting ineffective behaviors and beliefs that are preventing individuals and families from living a happy and functional life. When working with children I strongly believe in taking a collaborative approach along with their families in order to meet their goals.
 
-I’m passionate about creating resources for individuals struggling with eating disorders, and am interested in participating in workshops, speaking engagements, webinars, and podcasts.  
-If you’d like to schedule a consultation with me, please send an appointment request . I look forward to hearing from you.
+I currently reside in Fairfield, CT with my husband with whom I enjoy hiking and traveling with. I am fluent in English and Spanish and enjoy visiting my native country of Guatemala as often as possible.
+
+I have an undergraduate degree with a major in Finance and minor in Psychology from the University of Connecticut and a Master of Arts in Clinical Mental Health Counseling from Fairfield University. I worked in the Finance industry for over 17 years and decided to change careers in order to pursue my passion of working with children in the counseling field.
+
 
 # Contact
 
